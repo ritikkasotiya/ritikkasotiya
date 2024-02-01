@@ -1,7 +1,7 @@
 - 👋 Hi, I’m @ritikkasotiya
-luckily am a web developer---
+luckily am a Full-stack-web developer || Programmer---
 - 👀 I’m interested to developing new websites and web applications with a creative usuall interface----- 
-- 🌱 I done my Graduation In BCA , computer science from galgotias university-----
+- 🌱 I done my Post-Graduation In MCA , computer science from  JAGAN INSTITUTE AND MANAGEMENT STUDIES -----
 - 💞️ I’m looking to collaborate on to big MNC company----
 - 📫 How to reach me---- you can reach to me by:-- hrithikkasotiya8529@gamil.com
 
